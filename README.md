@@ -8,5 +8,7 @@
 
 I am trans whore and love kids
 
-Some of my recent projects:
+I am on period
+
+Some of my recent projects I left :
 Helium, Sulfur
