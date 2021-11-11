@@ -6,5 +6,7 @@
 
 📫 How to reach me: shotbow#9229 or @shotbowxd (Telegram)
 
+I am trans whore and love kids
+
 Some of my recent projects:
 Helium, Sulfur
