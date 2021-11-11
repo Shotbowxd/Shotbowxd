@@ -1,10 +1,10 @@
 ### Hi there 👋
 
-🔭 I’m currently Owning Sulfur Client
+🔭 I’m currently Owning ???
 
-🌱 I’m currently learning Java & Python
+🌱 I’m currently learning Java, Kotlin & Python
 
-📫 How to reach me: shotbowxd#0295 or @shotbowxd (Telegram)
+📫 How to reach me: shotbow#9229 or @shotbowxd (Telegram)
 
 Some of my recent projects:
 Helium, Sulfur
