@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, My name is Christian but you might know me as Shotbowxd :)
 
 🔭 I’m currently Owning ???
 
