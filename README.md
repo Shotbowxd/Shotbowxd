@@ -1,6 +1,6 @@
 ### Hi there, My name is Shotbowxd :)
 
-🔭 I’m currently working on Sleek
+🔭 I’m currently working on Eco
 
 🌱 I’m currently learning Java, Kotlin & Python
 
